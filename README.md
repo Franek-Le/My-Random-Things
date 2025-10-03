@@ -1,1 +1,1 @@
-# Cześć
+#Randomowe rzeczy
